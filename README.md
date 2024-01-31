@@ -1,2 +1,2 @@
 # Project-Entrepreneurisms-Ethics-Group-8
-hello
+# Members: Jesus F, Jose G, Ujas K
